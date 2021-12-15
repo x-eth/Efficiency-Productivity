@@ -1,5 +1,5 @@
 ## How to search only the HIGH-QUALITY content on the internet
-***Few people know about Programmable Search Engine, powered by Google, which allow you to customize your search result.***
+***Few people know about Programmable Search Engine, powered by Google, which allows you to customize your search result.***
 
 </br>
 </br>
